@@ -23,3 +23,4 @@ We reserve the right to update these terms at any time. Continued use of the App
 ### 7. Contact Information
 For questions or concerns, please contact us at [tiktokinstagram30@gmail.com].
 
+[tiktokynj7E7wjiPjQCQi8GKykT7KJlZlaVP8F.txt](https://github.com/user-attachments/files/19608811/tiktokynj7E7wjiPjQCQi8GKykT7KJlZlaVP8F.txt)
